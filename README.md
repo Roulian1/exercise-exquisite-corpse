@@ -16,3 +16,7 @@ Ce genre de passion ce multiplie de plus en plus parmis les habitants de bruxell
 - **Jane** *Hamelin*
 - **Anne** *Ligneau*
 - **Jean-Luc** *De Bourdeau*
+
+Comme tu le sais Julien, il existe plusieurs monde, c'est le **MULTIVERS** ! Comme tu le sais, ici Hagrid tel que tu le connais n'existe pas, dans ce monde il est ... différent. Je te présente SWAGRID :boom:
+
+ ![SWAGRID](assets/swagrid.gif)
